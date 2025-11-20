@@ -1,3 +1,3 @@
-Lucía Hebles Piña /n
+Lucía Hebles Piña 
 Eva Lucía López Porras
 
